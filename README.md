@@ -1,0 +1,2 @@
+# MRIUQIZ-
+Karnataka 
